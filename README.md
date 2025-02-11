@@ -1,0 +1,5 @@
+![2025-02-11 15_11_22-Emulator](https://github.com/user-attachments/assets/4f831bc1-b20b-465e-a0f7-e3ce59962cd9)
+![2](https://github.com/user-attachments/assets/6981fc27-53ea-413f-8250-0c56f892251c)
+![3](https://github.com/user-attachments/assets/3b2408ab-36c0-4794-814a-41e6b10dd556)
+![4](https://github.com/user-attachments/assets/62a03ef3-a8d7-4866-93d5-cf6398da26a8)
+![5](https://github.com/user-attachments/assets/8e8a7989-4dc6-4c06-929c-127f2fe234c4)
